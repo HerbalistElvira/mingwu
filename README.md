@@ -1,1 +1,1 @@
-# mingwu.ink
+ mingwu.xuziyi.ink
