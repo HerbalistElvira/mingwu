@@ -1,1 +1,1 @@
-# xujingmingwu.com
+# mingwu.ink
