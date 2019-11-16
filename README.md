@@ -1,1 +1,1 @@
- mingwu.xuziyi.ink
+xuziyi.ink
